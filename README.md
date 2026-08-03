@@ -65,7 +65,7 @@ I vibe alone, but I hope my work reaches someone else who feels the same.
 
 ## 📫 Connect With Me
 
-- GitHub: [@TaingBunthea](https://github.com/TaingBunthea)  
+- GitHub: [@BuntheaTaing](https://github.com/BuntheaTaing)  
 - (More social links coming – maybe even an intergalactic comms array 🛸)
 
 ---
