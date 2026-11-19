@@ -3,7 +3,7 @@
 
 # 👋 Hey, I'm TaingBunthea
 
-**19 y/o | Vibe Coder 🎧 | Vibe Hacker 💻 | Soft Heart, Sharp Code**
+**19 y/o | Vibe Coder 🎧 | Soft Heart, Sharp Code**
 
 ---
 
